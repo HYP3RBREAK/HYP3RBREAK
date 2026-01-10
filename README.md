@@ -1,1 +1,1 @@
-![image alt](https://pin.it/vcliUHibe)     
+![image alt]()     
