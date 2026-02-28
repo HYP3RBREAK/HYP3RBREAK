@@ -1,6 +1,6 @@
 [pronouns](https://pronouns.cc/@cyberluvk)
 ㅤㅤ[tree](https://colormytree.me/2025/01KBMSP1B4RZCNMJ2PZ5V82C8A)
-ㅤㅤㅤ[ata SUCKS](https://cyberluvk.atabook.org/).                                     [ugly straw](https://akanemakissa.straw.page)ㅤㅤ
+ㅤㅤㅤ[ata SUCKS](https://cyberluvk.atabook.org/).                                    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ugly straw](https://akanemakissa.straw.page)ㅤㅤ
  
 
 ![](https://komarev.com/ghpvc/?username=your-github-username&color=grey)
