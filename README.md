@@ -1,10 +1,7 @@
 <p align="center">
-  <img src="https://i.postimg.cc/tRDRDbd1/IMG-20260711-012119.jpg" width="660">
+  <img src="https://github.com/HYP3RBREAK/HYP3RBREAK/blob/862c2988299f3b888cba9b0d2f1358b80cdf6837/87e088d4675866c987173557cd87457d.jpg" width="660">
 </ㅤㅤ ![](https://komarev.com/ghpvc/?username=HYP3RBREAK-username&label=𑣲&color=FEE9EE)
-<p>
-<p align="center">
-  <img src="https://i.postimg.cc/q75B0xqp/Untitled205-20260711015218.png" width="400">
-</p>
+
 
 [prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://nunflix.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://cyberluvk.atabook.org)
 ㅤㅤㅤ    ㅤ ㅤㅤ ㅤ[rentry](
