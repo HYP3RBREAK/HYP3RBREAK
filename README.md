@@ -3,6 +3,6 @@
 </ㅤㅤ ![](https://komarev.com/ghpvc/?username=HYP3RBREAK-username&label=𑣲&color=FEE9EE)
 
 
-[prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](https://nunflix.straw.page)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://cyberluvk.atabook.org)
+[prns](https://pronouns.cc/@cyberluvk)ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[straw](wip)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://cyberluvk.atabook.org)
 ㅤㅤㅤ    ㅤ ㅤㅤ ㅤ[rentry](
 https://youtu.be/dQw4w9WgXcQ?si=5L2Hu6wR82n92_QQ)
